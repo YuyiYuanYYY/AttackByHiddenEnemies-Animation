@@ -1,5 +1,5 @@
 # AttachByHiddenEnemies
-This is an animation work, please go to behance or bilibili to check the details, the following is the jump link：
+This is an animation work, please go to behance or bilibili to check the details.
 
 Behance：https://www.behance.net/gallery/143724073/-AE/modules/812159015
 
